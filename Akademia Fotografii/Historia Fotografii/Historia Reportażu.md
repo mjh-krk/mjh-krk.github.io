@@ -1,5 +1,0 @@
-[[5. Reportaż - Wojna Krymska]]
-[[6. Reportaż - Wojna secesyjna]]
-[[7. Reportaż - Mathew Brady]]
-[[8. Reportaż - Jacob Riis]]
-[[9. Reportaż - Robert Capa]]
